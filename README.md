@@ -1,1 +1,1 @@
-# Seminar_on_Data-driven Approaches on Understanding Disinformation
+# Seminar on Data-driven Approaches on Understanding Disinformation
